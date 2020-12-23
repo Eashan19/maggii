@@ -1,0 +1,1 @@
+water 2.5 cups, 12 rupees ki 2 mins wali maggi, and a utensil to make maggi.
